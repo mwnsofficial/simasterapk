@@ -1,2 +1,0 @@
-# mwnsapk.github.io
-Uji
